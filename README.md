@@ -1,0 +1,1 @@
+# fuck_gfw_dns
